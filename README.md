@@ -1,3 +1,4 @@
-My It number:- IT20047306
+**Hi there, I'm Dinul Liyanage** 👋
+I'm a Undergraduage student at SLIIT
 
-Name:- Navinindu L.D
+Student ID - IT20047306
