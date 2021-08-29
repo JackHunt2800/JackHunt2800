@@ -1,5 +1,5 @@
 **Hi there, I'm Dinul Liyanage** 👋
 
-I'm an Undergraduage student at SLIIT
+I'm an undergraduate student at SLIIT
 
 Student ID - IT20047306
